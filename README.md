@@ -1,2 +1,3 @@
 # Hello-World
 Just Me 
+My name is Randy i enjoy movies video games and spending time with family i am hoping to learn alot in this coarse....
